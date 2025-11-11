@@ -1,2 +1,2 @@
-# G-NAYDIN
+# GÜNAYDIN 
 GÜNAYDIN
